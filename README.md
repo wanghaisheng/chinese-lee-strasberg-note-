@@ -1,3 +1,2 @@
-WebSim Vibe Coding Starter
-
-all tools are free 
+戏如人生
+人生如戏
